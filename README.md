@@ -1,6 +1,6 @@
 " ***i'd sacrifice myself to you right here tonight***, ***because you know that i love you*** . "
 ---
-this is intended to be a roleplay account!
+this is semi-intended to be a roleplay account!
 
 i yumeship to cope w trauma, i'm aware rerir is fictional. that being said, i have an irl boyfriend! hihi when u see this Harvey haiii !! <3
 
