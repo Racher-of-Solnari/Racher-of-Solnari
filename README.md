@@ -5,9 +5,11 @@ i yumeship to cope w trauma, i'm aware rerir is fictional. that being said, i ha
 
 oh yeah i also follow people i think are cool but i'm too shy to say hi to.. sobs
 
-![mlm](https://files.catbox.moe/ub2lnf.jpg) ![fict](https://files.catbox.moe/odp1er.jpg) ![grey](https://files.catbox.moe/w40wpr.jpg)
+<p align="center"> <p align="center"> <p align="center">
+<img src="https://files.catbox.moe/ub2lnf.jpg"</p> <img src="https://files.catbox.moe/w40wpr.jpg"</p> <img src="https://files.catbox.moe/odp1er.jpg"</p>
 
-![rerir](https://files.catbox.moe/ateg2e.png#50×50)
+<p align="center">
+<img src="https://files.catbox.moe/ateg2e.png"</p>
 
 profile was made on mobile, thats why some symbols may be missing (i use mobile and pc interchangably so i am aware of this)
 
