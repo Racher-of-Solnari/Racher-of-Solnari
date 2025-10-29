@@ -4,7 +4,7 @@
 i yumeship to cope w trauma, i'm aware rerir is fictional. that being said, i have an irl boyfriend! hihi when u see this Harvey haiii !! <3
 
 oh yeah i also follow people i think are cool but i'm too shy to say hi to.. sobs
-![rerir](https://files.catbox.moe/ateg2e.png)
+![rerir](https://files.catbox.moe/ateg2e.png#50×50)
 
 profile was made on mobile, thats why some symbols may be missing (i use mobile and pc interchangably so i am aware of this)
 
