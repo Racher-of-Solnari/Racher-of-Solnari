@@ -13,3 +13,14 @@ oh yeah i also follow people i think are cool but i'm too shy to say hi so.. sob
 
 <p align="center">
 <img src="https://files.catbox.moe/ateg2e.png"</p>
+
+<p align="center"> <p align="center">
+<img src="https://files.catbox.moe/jc1nv5.gif"</p> <img src="https://files.catbox.moe/d5w1kr.gif"</p>
+
+<p align="center">
+some ships i enjoy
+</p>
+
+<p align="center">
+rerir x me (obviously) , rerir x flins , rerir x dainsleif , rerir x varka , rerir x tholindis , flins x varka , flins x diluc ,  columbina x arlecchino , dainsleif x abyss!lumine as toxic exes , zhongli x neuvillette , wriothesley x neuvillette , alhaitham x kaveh , furina x herself , xbalanque x och kan , + a lot more that aren't currently coming to mind
+</p>
