@@ -12,6 +12,9 @@ oh yeah i also follow people i think are cool but i'm too shy to say hi so.. sob
 <img src="https://files.catbox.moe/ub2lnf.jpg"</p> <img src="https://files.catbox.moe/w40wpr.jpg"</p> <img src="https://files.catbox.moe/odp1er.jpg"</p>
 
 <p align="center">
+<img src="https://files.catbox.moe/2q5mbu.gif"</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/ateg2e.png"</p>
 
 <p align="center"> <p align="center">
