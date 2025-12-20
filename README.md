@@ -1,7 +1,11 @@
 # <h1 align="center">" i'd sacrifice myself to you right here tonight, because you know that i love you. "</h1>
 
 <p align="center">
-i yumeship to cope w trauma, i'm aware rerir is fictional. that being said, i have an irl boyfriend! hihi when u see this Harvey haiii !! <3
+account heavily dedicated to my f/o but i'll literally never talk about it unless you ask me lol
+</p>
+
+<p align="center">
+i yumeship to cope w/ trauma, i'm aware rerir is fictional. that being said, i have an irl boyfriend! hihi when u see this Harvey hiii !! <3
 </p>
 
 <p align="center">
@@ -25,5 +29,5 @@ some ships i enjoy
 </p>
 
 <p align="center">
-rerir x me (obviously) , rerir x flins , rerir x dainsleif , rerir x varka , rerir x tholindis , rerir x vedrfolnir as exes , flins x varka , flins x diluc , lauma x nefer ,  columbina x arlecchino , varka x capitano , dainsleif x abyss!lumine as exes , zhongli x neuvillette , wriothesley x neuvillette , alhaitham x kaveh , furina x herself , xbalanque x och-kan , + a lot more that aren't currently coming to mind
+rerir x me/Gab , rerir x flins , rerir x dainsleif , rerir x varka , rerir x tholindis , rerir x vedrfolnir as exes , flins x varka , flins x diluc , lauma x nefer ,  columbina x arlecchino , varka x capitano , dainsleif x abyss!lumine as exes , zhongli x neuvillette , wriothesley x neuvillette , alhaitham x kaveh , furina x herself , xbalanque x och-kan , + a lot more that aren't currently coming to mind
 </p>
