@@ -1,15 +1,15 @@
 # <h1 align="center">" i'd sacrifice myself to you right here tonight, because you know that i love you. "</h1>
 
 <p align="center">
-account heavily dedicated to my f/o but i'll literally never talk about it unless you ask me lol
+i am 100% fine with ships regarding Rerir as long as they aren't yumeships! i also encourage any ships (besides proships) to int & c+h! non-ships are also encouraged to int & c+h ^_^
 </p>
 
 <p align="center">
-i yumeship to cope w/ trauma, i'm aware rerir is fictional. that being said, i have an irl boyfriend! hihi when u see this Harvey hiii !! <3
+i yumeship to cope w/ trauma, i'm aware rerir is fictional and have permission from my irl boyfriend to yume! hi when you see this.. hi harvey.. 🤫
 </p>
 
 <p align="center">
-oh yeah i also follow people i think are cool but i'm too shy to say hi so.. sobs
+oh yeah i also follow people i think are cool but i'm usually much too shy to say hi..
 </p>
 
 <p align="center"> <p align="center"> <p align="center">
