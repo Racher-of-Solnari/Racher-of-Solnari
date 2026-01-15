@@ -1,7 +1,11 @@
 # <h1 align="center">" i'd sacrifice myself to you right here tonight, because you know that i love you. "</h1>
 
 <p align="center">
-i am 100% fine with ships regarding Rerir as long as they aren't yumeships! i also encourage any ships (besides proships) to int & c+h! non-ships are also encouraged to int & c+h ^_^
+please feel free to cuddle & interact, i promise i don't bite!
+</p>
+
+<p align="center">
+any ships are also heavily encouraged to cuddle & interact! (proships & other rerir yumes are discouraged however)
 </p>
 
 <p align="center">
@@ -9,7 +13,7 @@ i yumeship to cope w/ trauma, i'm aware rerir is fictional and have permission f
 </p>
 
 <p align="center">
-oh yeah i also follow people i think are cool but i'm usually much too shy to say hi..
+oh yeah i also follow people i think are cool but i'm usually shy so i rarely say hi.. wait bars that lowkey rhymed
 </p>
 
 <p align="center"> <p align="center"> <p align="center">
