@@ -35,3 +35,7 @@ some ships i enjoy
 <p align="center">
 rerir x me/Gab , rerir x flins , rerir x dainsleif , rerir x varka , rerir x tholindis , rerir x vedrfolnir as exes , flins x varka , flins x diluc , lauma x nefer ,  columbina x arlecchino , varka x capitano , dainsleif x abyss!lumine as exes , zhongli x neuvillette , wriothesley x neuvillette , alhaitham x kaveh , furina x herself , xbalanque x och-kan , + a lot more that aren't currently coming to mind
 </p>
+
+<p align="center">
+i also yume dainsleif & zhongli , yumesidering both varka & illuga
+</p>
