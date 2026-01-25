@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/0ui2js.png"</p>
+<img src="https://files.catbox.moe/lqbjek.png"</p>
 
 <p align="center">
 <ins>i've been locked inside your heart-shaped box for weeks .</ins>
@@ -8,7 +8,7 @@
 𝗖𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀Doctor‎  ‎ 𝘰𝘳‎ ‎  Gabriel
 </p> 
 <p align="center">
-𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜‎ ‎  Rerir ‎ gachikoi‎ ‎  𝘢𝘯𝘥 ‎‎ soulbond
+𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜‎ ‎  Rerir ‎ yumeshipper ‎  𝘢𝘯𝘥 ‎‎ gachikoi‎
 </p>
 <p align="center">
 𝗺𝗮𝗹𝗲‎‎‎‎ ‎    .‎  ‎ 𝘩𝘦‎ ‎  .‎⠀𝘩𝘪𝘮 ‎  . ‎  𝘩𝘪𝘴
@@ -53,4 +53,4 @@ rerir x me , any of my yumes x me , rerir x flins , rerir x dainsleif , rerir x 
 </div>
 
 <p align="center">
-<img src="https://files.catbox.moe/0ui2js.png"</p>
+<img src="https://files.catbox.moe/lqbjek.png"</p>
