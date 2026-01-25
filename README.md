@@ -1,9 +1,8 @@
 <p align="center">
 <img src="https://files.catbox.moe/0ui2js.png"</p>
 
-<p align="center">
-___captain___⠀*or*⠀doctor *or* gabriel
-</p>
+<p align="center" text="***captain***⠀*or*⠀doctor *or* gabriel">
+  
 <p align="center">
 ***nonsharing*** rerir gachikoi *&* soulbond
 </p>
