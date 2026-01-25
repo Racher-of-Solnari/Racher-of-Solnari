@@ -19,3 +19,12 @@
 
 <p align="center">
 <img src="https://files.catbox.moe/z1zs38.jpg"</p>
+
+<div
+align="center">
+<details>
+<summary>yume stuff</summary>
+i yumeship to cope w/ trauma, i'm aware rerir & the others r fictional & have permission from my boyfriend to yume! <3‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . varka - selective sharing . illuga - nonsharing
+</details>
+</div>
