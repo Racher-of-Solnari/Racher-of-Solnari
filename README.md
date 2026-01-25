@@ -16,3 +16,6 @@
 <p align="center">
 𝗮𝘀𝗱‎ ‎  + ‎ 𝘰𝘴𝘥𝘥
 </p>
+
+<p align="center">
+<img src="https://files.catbox.moe/z1zs38.jpg"</p>
