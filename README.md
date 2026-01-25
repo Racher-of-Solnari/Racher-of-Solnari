@@ -2,6 +2,9 @@
 <img src="https://files.catbox.moe/0ui2js.png"</p>
 
 <p align="center">
+<ins>i've been locked inside your heart-shaped box for weeks .</ins>
+
+<p align="center">
 𝗖𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀Doctor‎  ‎ 𝘰𝘳‎ ‎  Gabriel
 </p> 
 <p align="center">
