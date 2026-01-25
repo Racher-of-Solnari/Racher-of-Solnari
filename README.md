@@ -2,13 +2,13 @@
 <img src="https://files.catbox.moe/0ui2js.png"</p>
 
 <p align="center">
-***captain***⠀*or*⠀doctor *or* gabriel
+𝗰𝗮𝗽𝘁𝗮𝗶𝗻⠀𝘰𝘳⠀doctor 𝘰𝘳 gabriel
 </p> 
 <p align="center">
-***nonsharing*** rerir gachikoi *&* soulbond
+𝙣𝙤𝙣𝙨𝙝𝙖𝙧𝙞𝙣𝙜 rerir gachikoi soulbond
 </p>
 <p align="center">
-***male*** . *he*⠀ .⠀ *him*  .  *his*
+***male*** . *he* .⠀*him*  .  *his*
 </p>
 <p align="center">
 ***mlm***⠀*&* greyromantic
