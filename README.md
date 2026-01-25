@@ -16,9 +16,12 @@
 <p align="center">
 𝗮𝘀𝗱‎ ‎  + ‎ 𝘰𝘴𝘥𝘥
 </p>
+<p align="center">
+𝙝𝙫𝙮 ‎ ‎ genshin‎ ‎  hyperfix
+</p>
 
 <p align="center">
-<img src="https://files.catbox.moe/k3p71i.jpg"</p>
+<img src="https://files.catbox.moe/2q5mbu.gif"</p>
 
 <div
 align="center">
