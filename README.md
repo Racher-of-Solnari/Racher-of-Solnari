@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/0ui2js.png"</p>
 
 <p align="center">
-***captain***⠀*or*⠀doctor *or* gabriel
+___captain___⠀*or*⠀doctor *or* gabriel
 </p>
 <p align="center">
 ***nonsharing*** rerir gachikoi *&* soulbond
