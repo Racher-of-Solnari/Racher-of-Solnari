@@ -39,7 +39,7 @@ align="center">
 <details>
 <summary>yume stuff</summary>
 i yumeship to cope w/ trauma, i'm aware rerir & the others r fictional & have permission from my boyfriend to yume! <3‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . varka - selective sharing . illuga - nonsharing
+yumes heh; rerir - nonsharing . dainsleif - nonsharing . zhongli - nonsharing . varka - selective sharing . orion turak - nonsharing . anomaly - yumesidering
 </details>
 </div>
 
