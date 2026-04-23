@@ -49,7 +49,7 @@ align="center">
 <details>
 <summary>ships i like</summary>
 in no specific order !!
-rerir x me , any of my yumes x me , rerir x flins , rerir x dainsleif , rerir x varka , rerir x tholindis , rerir x vedrfolnir as exes , rerir x illuga , flins x varka , flins x diluc , flins x illuga , varka x nicole , varka x mauvika(?) , varka x capitano , lauma x nefer , lauma x columbina , columbina x arlecchino , columbina x sandrone , dainsleif x abyss!lumine as exes , zhongli x neuvillette , wriothesley x neuvillette , alhaitham x kaveh , furina x herself , xbalanque x och-kan + a lot more that aren't currently coming to mind
+rerir x me , any of my yumes x me , rerir x flins , rerir x dainsleif , rerir x varka , rerir x tholindis , rerir x vedrfolnir as exes , rerir x illuga , flins x varka , flins x diluc , flins x illuga , varka x nicole , varka x mauvika(?) , varka x capitano , lauma x nefer , lauma x columbina , columbina x arlecchino , columbina x sandrone , dainsleif x abyss!lumine as exes , zhongli x neuvillette , wriothesley x neuvillette , alhaitham x kaveh , furina x herself or focalors #selflove , xbalanque x och-kan + a lot more that aren't currently coming to mind
 </details>
 </div>
 
